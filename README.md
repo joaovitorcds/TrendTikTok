@@ -1,1 +1,1 @@
-Link:  joaovitorcds.github.io/TrendTikTok
+Link:      https://joaovitorcds.github.io/TrendTikTok
